@@ -1,2 +1,2 @@
-# NNNNNNNN-Word
-dofejoejeog ego geokge ogkeg egk egkeg ekgpe g ekgp keg pkegkpekp ge kg kpeg kpepgk
+# NORMATIVES-27
+02.10.2025 норматив 1 из док файла tg 
